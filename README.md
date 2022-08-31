@@ -2,7 +2,7 @@
 - 👀 I’m interested in not sure yet but lets go with coding
 - 🌱 I’m currently persuing computer science
 - 💞️ I’m looking to collaborate on anything that gets me excited
-- 📫 You can email/message on instagram
+- 📫 You can email me or message me on instagram
 - email: sujaykumar47@gmail.com
 - instagram: sujay0_o
 <!---
